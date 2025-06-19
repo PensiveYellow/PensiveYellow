@@ -2,7 +2,7 @@
 
 <p>Im kind of dumb , like a rock and boring um</p>
 
-<p>I kin big blue and twofaced btw ,  yumeshipper too (u can ask abt em)</p>
+<p>I kin big blue and twofaced btw ,  yumeshipper w/ Macabre_Day (hi Tdu Yumeshippers , ur my favorite /silly)</p>
 
 <p>as said , He/Hymn is preffered but any really (excluding She/Her)</p>
 
